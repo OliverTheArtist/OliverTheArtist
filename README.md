@@ -1,4 +1,0 @@
-- 👋 Hi, I’m @OliverTheArtist
-- 👀 I’m interested in Art, bot developing, sports, etc
-- 🌱 I’m currently learning Spanish, Korean, coding
-- 📫 How to reach me, Oliver,,#0666
